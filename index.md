@@ -22,10 +22,9 @@ Ihr könnt am Ende der Forststraße XYZ parken (KOORDINATEN). Von dort sind es n
 - Mainstage: DJ Marylicious an den Decks
 - Gruppentanz: Catchy Folks
 - Sidestage: Populärmusik von den Ursprungbuam (Vorgruppe: DJ Fabster)
+- Spieleabend
+![20190703_214736_HDR](https://user-images.githubusercontent.com/92885309/138167119-633162c7-12a6-4645-b778-e567305ad2c6.jpg)
 
-[Link](url) and ![Image](src)
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
 ### Jekyll Themes
 
