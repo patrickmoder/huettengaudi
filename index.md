@@ -2,9 +2,9 @@
 
 <img src="https://user-images.githubusercontent.com/92885309/138420978-e7037c02-6674-4b0c-b9a2-036b87402a8b.jpg" alt="hütte" width="50%"/>
 
-Liebe Feiergemeinde,
+Meine lieben Freunde,
 
-ich möchte mit euch das Glas heben auf (beinahe) dreißig lange Jahre Freundschaft. Lasst uns gemeinsam auf der Davidhütte am Innsbrucker Hausberg (dem Patscherkofel) zusammenkommen und mal so richtig auf den Putz hauen!
+ich möchte mit euch das Glas heben auf meinen Geburtstag und (beinahe) dreißig lange Jahre Freundschaft. Lasst uns gemeinsam auf der Davidhütte am Innsbrucker Hausberg (dem Patscherkofel) zusammenkommen und mal so richtig auf den Putz hauen!
 
 Die große Feier findet am **Samstag, 27.11.2021** statt. Ihr könnt den ganzen Tag über ankommen (aber nicht später als 18 Uhr), unten gibt es mehr Details zur Anfahrt. Wer es gar nicht erwarten kann, darf gerne schon am Freitag zur Hütte hochkommen und mit mir bei einem gemütlichen Weinabend mit BBQ reinfeiern. Maria und ich sind am Freitag ab 16 Uhr auf der Hütte und heizen schon mal ein. Am Sonntag geht es dann nach dem Frühstück gemütlich wieder heim.
 
