@@ -31,6 +31,5 @@ Ihr könnt am Ende der Forststraße parke, die zur Hütte führt. Von dort sind 
 ### Was sonst noch geboten sein wird
 
 Gesellschaftsspiele | Trinkspiele | Abfahrt
-
 :---: | :---: | :---:
 <img src="https://user-images.githubusercontent.com/92885309/138167119-633162c7-12a6-4645-b778-e567305ad2c6.jpg" alt="drawing1" width=300px/> | here also comes some content | <img src="https://user-images.githubusercontent.com/92885309/138432596-22b7e279-dceb-4157-9ed5-0195b1c28849.jpg" alt="jimmy" width=300px/>
