@@ -27,11 +27,7 @@ Ihr könnt am Ende der Forststraße parke, die zur Hütte führt. Von dort sind 
 
 <img src="https://user-images.githubusercontent.com/92885309/138432581-0446e4e6-7196-4e67-a769-e6a3c91d90f4.jpg" alt="gitarre" width="50%"/>
 
----
-Header 1: asdasd
-Header 2: sdasda
-Header 3: asdasd
----
+LALALALA
 
 ### Was sonst noch geboten sein wird
 
