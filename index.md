@@ -23,7 +23,7 @@ Ihr könnt am Ende der Forststraße parke, die zur Hütte führt. Von dort sind 
 ### Special Acts
 - Mainstage: DJ Marylicious an den Decks
 - Gruppentanz: [Catchy Folks](https://user-images.githubusercontent.com/92885309/138452782-8c2e9f5a-02bf-4f4b-a04a-6a37ebd96e30.mp4)
-- Sidestage: Populärmusik von den Ursprungbuam (Vorgruppe: DJ Fabster)
+- Sidestage: Volks- und Populärmusik von den Ursprungbuam (Vorgruppe: DJ Fabster)
 
 <img src="https://user-images.githubusercontent.com/92885309/138432581-0446e4e6-7196-4e67-a769-e6a3c91d90f4.jpg" alt="gitarre" width="50%"/>
 
