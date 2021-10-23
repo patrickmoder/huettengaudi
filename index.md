@@ -28,8 +28,6 @@ Ihr könnt am Ende der Forststraße parken, die zur Hütte führt. Von dort sind
 
 <img src="https://user-images.githubusercontent.com/92885309/138432581-0446e4e6-7196-4e67-a769-e6a3c91d90f4.jpg" alt="gitarre" width="50%"/>
 
-
-![IMG_1986](https://user-images.githubusercontent.com/92885309/138550484-dc8b8799-9a18-491e-94f9-1d8badb3cdca.jpg)
 ### Was sonst noch geboten sein wird
 
 Gesellschaftsspiele | Trinkspiele | Abfahrt
