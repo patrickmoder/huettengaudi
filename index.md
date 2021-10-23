@@ -29,8 +29,9 @@ Ihr könnt am Ende der Forststraße parken, die zur Hütte führt. Von dort sind
 <img src="https://user-images.githubusercontent.com/92885309/138432581-0446e4e6-7196-4e67-a769-e6a3c91d90f4.jpg" alt="gitarre" width="50%"/>
 
 
+![IMG_1986](https://user-images.githubusercontent.com/92885309/138550484-dc8b8799-9a18-491e-94f9-1d8badb3cdca.jpg)
 ### Was sonst noch geboten sein wird
 
 Gesellschaftsspiele | Trinkspiele | Abfahrt
 :---: | :---: | :---:
-<img src="https://user-images.githubusercontent.com/92885309/138167119-633162c7-12a6-4645-b778-e567305ad2c6.jpg" alt="drawing1" width=300px/> | here also comes some content | <img src="https://user-images.githubusercontent.com/92885309/138432596-22b7e279-dceb-4157-9ed5-0195b1c28849.jpg" alt="jimmy" width=300px/>
+<img src="https://user-images.githubusercontent.com/92885309/138167119-633162c7-12a6-4645-b778-e567305ad2c6.jpg" alt="georgien" width=300px/> | <img src="https://user-images.githubusercontent.com/92885309/138550482-07d95b21-acab-4371-acce-506c6dd3e7ac.JPG" alt="sucuk" width=300px/> | <img src="https://user-images.githubusercontent.com/92885309/138432596-22b7e279-dceb-4157-9ed5-0195b1c28849.jpg" alt="jimmy" width=300px/>
