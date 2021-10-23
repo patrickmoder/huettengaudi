@@ -16,8 +16,8 @@ Es gibt 26 Schlafplätze -- also bitte sagt mir bitte, ab welchem Tag ihr ankomm
 Ihr könnt am Ende der Forststraße parken, die zur Hütte führt. Von dort sind es noch 15min (für Bergziegen und Sherpas) bzw. 20min (für alle anderen BergfexInnen) zu Fuß zur Hütte. Die genauen Koordinaten stelle ich dann hier rein, sobald ich sie vom Hüttenwart bekommen habe.
 
 ### Packliste
-* Schlafsack
-* dicke Socken
+* Bettbezug oder Schlafsack
+* Dicke Socken
 * Wechselunterhose _(Goatsch)_
 * Es gibt Duschen, also packt gerne ein Handtuch ein, falls ihr euch waschen wollt
 
