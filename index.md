@@ -10,7 +10,7 @@ Die große Feier findet am **Samstag, 27.11.2021** statt. Ihr könnt den ganzen 
 
 _Logis:_ Für die Übernachtung werde ich einen Obolus einsammeln, 30€ von jedem für eine Nacht. Für beide Nächte sind es 45€. Der Rest der Hüttenmiete geht auf unseren Nacken und auch sonst ist für sämtliche Verpflegung gesorgt. Lasst dafür auch gerne die Geschenke klein ausfallen - dass wir dort gemeinsam feiern können ist mir eh das größte Geschenk ;)
 
-Es gibt 26 Schlafplätze -- also bitte sagt mir bitte, ab welchem Tag ihr ankommen wollt und gebt mir vor allem möglichst bald Bescheid, wenn ihr **leider** nicht kommen könnt. 
+Bitte meldet euch bei mir, ab welchem Tag ihr ankommen wollt. Es gibt 26 Schlafplätze -- also gebt mir vor allem möglichst bald Bescheid, wenn ihr **leider** nicht kommen könnt. 
 
 ### Treffpunkt
 Ihr könnt am Ende der Forststraße parken, die zur Hütte führt. Von dort sind es noch 15min (für Bergziegen und Sherpas) bzw. 20min (für alle anderen BergfexInnen) zu Fuß zur Hütte. Die genauen Koordinaten stelle ich dann hier rein, sobald ich sie vom Hüttenwart bekommen habe.
